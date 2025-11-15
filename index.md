@@ -92,4 +92,4 @@ Let’s connect — I bring the perfect blend of global experience, cutting-edge
 **Open to:**  
 **TA Lead • Head of Talent Acquisition • Recruitment Manager • Global Talent Partner** roles in Delhi NCR (or hybrid/remote) with IT/ITES, Consulting, Cybersecurity, Automotive & Manufacturing organizations.
 
-**Reach out today:** shwetaanand9@gmail.com | +91 89293 98909
+**Reach out today:** shwetaanand9@gmail.com
